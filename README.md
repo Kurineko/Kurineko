@@ -1,0 +1,5 @@
+- Hello, im uhhh Kuri
+- im into music and media and stuff
+- i wanna build websites and other things
+- i'd love to collab with ppl in interesting projects
+- you can message me at Kurineko#7087
